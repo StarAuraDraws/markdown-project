@@ -15,7 +15,7 @@ Lets take a look at everyone's favorite food-- Pizza!
 
 > *“If you cut up a large pizza, it's no big deal. If you cut up a Medium, you could go to jail for a long time.
 
-...Though you have to wonder why she didn't see it coming.”* — GonzoMcFonzo
+> ...Though you have to wonder why she didn't see it coming.”* — GonzoMcFonzo
 
 [Discover more pizza history](https://en.wikipedia.org/wiki/Pizza)
 

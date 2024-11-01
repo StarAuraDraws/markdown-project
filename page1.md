@@ -8,7 +8,7 @@
 
 > *"In ancient times cats were worshipped as gods; they have not forgotten this."* — Terry Pratchett
 
-Cats are the silliest creatures on earth:
+Cats are the silliest creatures on earth. Heres a photo of the silliest cat I know!:
 
 ![Silly Cat](https://i.redd.it/wptahs74svgc1.jpeg)
 

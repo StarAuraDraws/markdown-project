@@ -1,1 +1,1 @@
-# markdown-project
+This is a project for my IT class.
